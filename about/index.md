@@ -90,4 +90,4 @@
 
 [영상 링크](https://drive.google.com/open?id=1phR6k1FN-pGBf93MMg_kPwqi7U0BgAaX)
 
-### [📧 devDoma](mailto:leegun2003@gmail.com)[3904@gmail.com](mailto:devdoma3904@gmail.com)
+### [📧 devDoma](mailto:devdoma3904@gmail.com)[3904@gmail.com](mailto:devdoma3904@gmail.com)
